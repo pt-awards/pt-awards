@@ -2,7 +2,7 @@
 <img align="left" width="200" height="200" src="https://github.com/user-attachments/assets/d0d38530-6d87-43dd-8f95-7c03fdf7b289"> winners!! -> [@5uguru](https://github.com/5uguru) [@deepaffection](https://github.com/deepaffection) [@pinkswamp](https://github.com/pinkswamp) [@sugarsite](https://github.com/sugarsite)
 [@dyingmall](https://github.com/dyingmall) [@cyberangel](https://github.com/CyberAngei) [@ValleySheep](https://github.com/ValleySheep) [@ovrpheus](https://github.com/ovrpheus) [@vexuliii](https://github.com/vexuliii) [@N1TEBO1](https://github.com/N1TEB0I) , to be added!! (this is in no specific order btw)
 
-if you would like to request to add someone or for removal, u can ask [here](https://straw.page/draw?bio=awards)!!
+if you would like to request to add someone or for removal, u can ask [here](https://awards.straw.page)!!
 
 <!--
 **pt-awards/pt-awards** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
