@@ -5,6 +5,8 @@
 if you would like to request to add someone or for removal, u can ask [here](https://awards.straw.page)!!
 (note that when we say request, we dont mean guarantee!! this just means you will be taken up for review with our team)
 
+take into consideration that we do not add githubs that we deem problamatic (for example copying of any kind, drama, or negative behavior) before requesting, we do EXTENSIVE research and if we find anything icky, even if its a stretch, we will not add them. (however, we will reach out to the requested github before throwing around accusations) please understand that this is to keep our enviroment fun and safe!
+
 this github is run by multiple ppl, so things might take a while because of contrasting opinions
 congratulations winners !!
 
