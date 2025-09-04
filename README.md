@@ -12,6 +12,8 @@ congratulations winners !!
 
 -- pt awards team ♡
 
+ALSO THANK U SM FOR ALL THE REQUESTS GUYS WE PROMISE WE WILL ADD THEM ALL EVENTUALLY, currently we r just tryna organize everything here so it might take some time. thank u for ur patience!! in the meantime, a thank you from the original owner of this account: [♡](https://pt-awards.straw.page)
+
 <!--
 **pt-awards/pt-awards** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
