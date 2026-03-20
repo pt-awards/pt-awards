@@ -17,14 +17,12 @@ this list is mainly english-safe central
 if you would like to request to add someone or for removal, u can ask [here](https://awards.straw.page)!!
 (note that when we say request, we dont mean guarantee!! this just means you will be taken up for review) please provide reasoning when requesting!! This helps us organize / put them in categories.
 
-take into consideration that we do not add githubs that we deem problematic (ex: copying of any kind, drama, problematic fandoms, or negative behavior) before requesting. If we are told someone is problamatic / just not a good person in general, we will not add them / remove them. If we get complaints more than twice they will be removed. If misinformation is being spread pls let us know, we will often check in their signbook (if they have one) before making accusations. Petty drama will be ignored, so long as nobody was hurt. Please understand that this is to keep our enviroment fun and safe! IF THERE IS SOMEONE ON HERE THAT IS PROBLEMATIC PLEASE LET US KNOW.
+take into consideration that we do not add githubs that we deem problematic (ex: copying of any kind, drama, problematic fandoms, or negative behavior) before requesting. If we are told someone is problamatic / just not a good person in general, we will not add them / remove them. If we get complaints more than twice they will be removed. Provide your OWN github when giving this information so that we will know if we're being spammed by the same person  or if it's genuinely from multiple ppl. If misinformation is being spread pls let us know, we will often check in their signbook (if they have one) before making accusations. Petty drama will be ignored, so long as nobody was hurt. Please understand that this is to keep our enviroment fun and safe! IF THERE IS SOMEONE ON HERE THAT IS PROBLEMATIC PLEASE LET US KNOW.
 
-this github is run by multiple ppl, so things might take a while because of contrasting opinions,
-congratulations winners !!
-
-some githubs are not linked because we could not find the link for them, if you have them pls send them on our strawpage!!
+some githubs are not linked because we could not find the link for them, if you have them pls send them on our
+[strawpage](https://awards.straw.page)!!
 
 -- pt awards team
 
-a thank you from the original owner of this account: [♡](https://pt-awards.straw.page)
+A thank you from the original owner of this account: [♡](https://pt-awards.straw.page)
 
