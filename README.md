@@ -1,23 +1,23 @@
 
-<img align="left" width="200" height="200" src="https://github.com/user-attachments/assets/d0d38530-6d87-43dd-8f95-7c03fdf7b289"> OG WINNERS!! -> [@5uguru](https://github.com/5uguru) , [@deepaffection](https://github.com/deepaffection) , [@pinkswamp](https://github.com/pinkswamp) , [@sugarsite](https://github.com/sugarsite)
-[@dyingmall](https://github.com/dyingmall) , [@cyberangel](https://github.com/CyberAngei) , [@vexuliii](https://github.com/vexuliii) , [@N1TEBO1](https://github.com/N1TEB0I) , [akchouu](https://github.com/akchouu) , [bandaged-wounds](https://github.com/bandaged-wounds)
+<img align="left" width="200" height="200" src="https://github.com/user-attachments/assets/d0d38530-6d87-43dd-8f95-7c03fdf7b289"> OG WINNERS!! -> [@deepaffection](https://github.com/deepaffection) , [@pinkswamp](https://github.com/pinkswamp) , [@sugarsite](https://github.com/sugarsite) , 
+[@dyingmall](https://github.com/dyingmall) , [@cyberangel](https://github.com/CyberAngei) , [@vexuliii](https://github.com/vexuliii) , [@N1TEBO1](https://github.com/N1TEB0I) , [@akchouu](https://github.com/akchouu) , [@bandaged-wounds](https://github.com/bandaged-wounds) , [@yusions](github.com/yusions)
 
-pretty skins -> [B1-SP1Der](https://github.com/B1-SP1Der) , [buildertara](https://github.com/buildertara) , [nameless-boy](https://github.com/nameless-boy) , [izuutsumi](https://github.com/izuutsumi)) , [stagdwle](https://github.com/stagdwle) , mykkii , yvoisen , [fufuwin](https://github.com/fufuwin) , [parasidalsight](https://github.com/parasidalsight) , radioactive-lazer , [horangigoesmeow](https://github.com/horangigoesmeow) , [timejumpduo](https://github.com/timejumpduo)
+pretty skins -> [B1-SP1Der](https://github.com/B1-SP1Der) , [buildertara](https://github.com/buildertara) , [nameless-boy](https://github.com/nameless-boy) , [izuutsumi](https://github.com/izuutsumi)) , [stagdwle](https://github.com/stagdwle) , mykkii , yvoisen , [fufuwin](https://github.com/fufuwin) , [parasidalsight](https://github.com/parasidalsight) , radioactive-lazer , [horangigoesmeow](https://github.com/horangigoesmeow) , [timejumpduo](https://github.com/timejumpduo) , [bigguykoi](https://github.com/bigguykoi) , [BLOSSOMING‐FLOWER](https://github.com/BLOSSOMING‐FLOWER) , [punpunism](punpunism) , [dexholder](https://github.com/dexholder) , [sorbetflakes](https://github.com/sorbetflakes) , [pupmikaw](https://github.com/pupmikaw) , [Starscreamr](https://github.com/Starscreamr) , [chickenroulette](https://github.com/chickenroulette) , [2meowkit](https://github.com/2meowkit) , [personlovely](https://github.com/personlovely) , [MAR1NAA4](https://github.com/MAR1NAA4) , [4rtistic](https://github.com/4rtistic)
 
-well known players -> [FestiveSpooks](https://github.com/FestiveSpooks) , [10shadows](https://github.com/10shadows) , [STARPKMN](https://github.com/STARPKMN) , IHASFACELULZ , [dummyinbed](https://github.com/dummyinbed) , [astariomaggelen](https://github.com/astariomaggelen) , [cheriecrush](https://github.com/cheriecrush) , [gweystars](https://github.com/gweystars)
+well known players -> [FestiveSpooks](https://github.com/FestiveSpooks) , [10shadows](https://github.com/10shadows) , [STARPKMN](https://github.com/STARPKMN) , [astariomaggelen](https://github.com/astariomaggelen) , [cheriecrush](https://github.com/cheriecrush) , [gweystars](https://github.com/gweystars) , [kingofalejandro](https://github.com/kingofalejandro) , [aevsria](https://github.com/aevsria) , [minecraftmaxxing](https://github.com/minecraftmaxxing) , [love-bullet](https://github.com/love-bullet)
 
-pretty githubs -> [xxhe4rtstringz](https://github.com/xxhe4rtstringz) , [wondercatful](https://github.com/wondercatfuI) , [towerworld](https://github.com/towerworld) , [tornmask](https://github.com/tornmask) , [yuriclown](https://github.com/yuriclown)
+sick githubs -> [wondercatful](https://github.com/wondercatfuI) , [towerworld](https://github.com/towerworld) , [sir-chloe](https://github.com/sir-chloe) , [yuriclown](https://github.com/yuriclown) , [electrifypink](https://github.com/electrifypink) , [sudokusweeper](https://github.com/sudokusweeper)
 
 extra mentions -> [eunvy](https://github.com/eunvy) , [ozolog](https://github.com/ozolog) , [streetchem](https://github.com/streetchem)
 
- to be added!! (this is in no specific order btw)
+ to be added!! last update: March 20, 2026
 
 this list is mainly english-safe central
 
 if you would like to request to add someone or for removal, u can ask [here](https://awards.straw.page)!!
-(note that when we say request, we dont mean guarantee!! this just means you will be taken up for review with our team)
+(note that when we say request, we dont mean guarantee!! this just means you will be taken up for review) please provide reasoning when requesting!! This helps us organize / put them in categories.
 
-take into consideration that we do not add githubs that we deem problematic (for example copying of any kind, drama, problematic fandoms, or negative behavior) before requesting. If we find anything icky, even if its a stretch, we will not add them / will remove them. Please understand that this is to keep our enviroment fun and safe! IF THERE IS SOMEONE ON HERE THAT IS PROBLEMATIC PLEASE LET US KNOW.
+take into consideration that we do not add githubs that we deem problematic (ex: copying of any kind, drama, problematic fandoms, or negative behavior) before requesting. If we are told someone is problamatic / just not a good person in general, we will not add them / remove them. If we get complaints more than twice they will be removed. If misinformation is being spread pls let us know, we will often check in their signbook (if they have one) before making accusations. Petty drama will be ignored, so long as nobody was hurt. Please understand that this is to keep our enviroment fun and safe! IF THERE IS SOMEONE ON HERE THAT IS PROBLEMATIC PLEASE LET US KNOW.
 
 this github is run by multiple ppl, so things might take a while because of contrasting opinions,
 congratulations winners !!
