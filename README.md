@@ -6,7 +6,7 @@ pretty skins -> [B1-SP1Der](https://github.com/B1-SP1Der) , [buildertara](https:
 
 well known players -> [FestiveSpooks](https://github.com/FestiveSpooks) , [10shadows](https://github.com/10shadows) , [STARPKMN](https://github.com/STARPKMN) , [astariomaggelen](https://github.com/astariomaggelen) , [cheriecrush](https://github.com/cheriecrush) , [gweystars](https://github.com/gweystars) , [kingofalejandro](https://github.com/kingofalejandro) , [aevsria](https://github.com/aevsria) , [minecraftmaxxing](https://github.com/minecraftmaxxing) , [love-bullet](https://github.com/love-bullet) , [Vampxxbi](https://github.com/Vampxxbi)
 
-sick githubs -> [wondercatful](https://github.com/wondercatfuI) , [towerworld](https://github.com/towerworld) , [sir-chloe](https://github.com/sir-chloe) , [yuriclown](https://github.com/yuriclown) , [electrifypink](https://github.com/electrifypink) , [sudokusweeper](https://github.com/sudokusweeper)
+pretty githubs -> [wondercatful](https://github.com/wondercatfuI) , [towerworld](https://github.com/towerworld) , [sir-chloe](https://github.com/sir-chloe) , [yuriclown](https://github.com/yuriclown) , [electrifypink](https://github.com/electrifypink) , [sudokusweeper](https://github.com/sudokusweeper)
 
 extra mentions -> [eunvy](https://github.com/eunvy) , [ozolog](https://github.com/ozolog) , [streetchem](https://github.com/streetchem)
 
