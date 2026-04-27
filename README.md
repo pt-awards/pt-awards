@@ -17,7 +17,7 @@ this list is mainly english-safe central
 if you would like to request to add someone or for removal (for YOURSELF), u can ask [here](https://awards.straw.page)!!
 Please provide reasoning when requesting!! This helps us organize / put them in categories!
 
-we will not add githubs that we deem problematic (copying of any kind, harassment, problematic fandoms, or negative behavior). If we are told someone is problematic, we will not add / will remove them. Please provide your OWN github when providing this information, as it will allow us to know wether we are just being spammed by the same person or if its genuinely from multiple ppl. Petty drama will be ignored, (disagreements , falling out between friends). If there is someone on this list that is problematic pls let us know!! docs are not required, but are appreciated.
+we will not add githubs that we deem problematic (copying of any kind, harassment, problematic fandoms, or negative behavior). If we are told someone is problematic, we will not add / will remove them. Please provide your OWN github when providing this information, as it will allow us to know whether we are just being spammed by the same person or if its genuinely from multiple ppl. Petty drama will be ignored, (disagreements , falling out between friends). If there is someone on this list that is problematic pls let us know!! docs are not required, but are appreciated.
 
 some githubs are not linked because we could not find the link for them, if you have them pls send them on our
 [strawpage](https://awards.straw.page)!!
