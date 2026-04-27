@@ -10,7 +10,7 @@ sick githubs -> [wondercatful](https://github.com/wondercatfuI) , [towerworld](h
 
 extra mentions -> [eunvy](https://github.com/eunvy) , [ozolog](https://github.com/ozolog) , [streetchem](https://github.com/streetchem)
 
- to be added!! last update: March 20, 2026
+last update: March 20, 2026
 
 this list is mainly english-safe central
 
