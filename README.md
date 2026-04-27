@@ -10,7 +10,7 @@ pretty githubs -> [wondercatful](https://github.com/wondercatfuI) , [towerworld]
 
 extra mentions -> [eunvy](https://github.com/eunvy) , [ozolog](https://github.com/ozolog) , [streetchem](https://github.com/streetchem) , [housepanther](https://github.com/housepanther)
 
-last update: March 20, 2026
+last update: April 26, 2026
 
 this list is mainly english-safe central
 
