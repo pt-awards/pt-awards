@@ -27,5 +27,5 @@ some githubs are not linked because we could not find the link for them, if you 
 A thank you from the original owner of this account: [♡](https://pt-awards.straw.page)
 
 Other awards accounts:
-[pt-players](https://github.com/pt-players) , [ponytowners](https://github.com/ponytowners)
+[pt-players](https://github.com/pt-players) , [ponytowners](https://github.com/ponytowners) , [pt-walk-of-fame](https://github.com/pt-walk-of-fame)
 
