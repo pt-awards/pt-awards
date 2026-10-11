@@ -17,9 +17,9 @@ last update: October 11, 2026
 this list is mainly english-safe central
 
 if you would like to request to add someone or for removal (for YOURSELF), u can ask [here](https://awards.straw.page)!!
-Please provide reasoning when requesting!! This helps us organize / put them in categories!
+Please provide category when requesting!! This helps us organize / put them in categories!
 
-we will not add / will remove githubs that we deem problematic (copying of any kind, harassment, problematic fandoms, or negative behavior). We CANNOT remove someone if we are not TOLD, keep this in mind before spamming our strawpage with comments like THESE. Do not expect us to keep up with drama between people we DO NOT KNOW on a game with THOUSANDS of players. Thank you! You may contact us on discord @pt_awards. Please provide proof. Petty drama (falling out between friends, arguments over contrasting (but not harmful) opinions, etc) will be ignored. Not sure what we mean by "problematic"? Check here!
+we will not add / will remove githubs that we deem problematic (copying of any kind, harassment, problematic fandoms, or negative behavior). We CANNOT remove someone if we are not TOLD, keep this in mind before spamming our strawpage with comments like THESE. Do not expect us to keep up with drama between people we DO NOT KNOW on a game with THOUSANDS of players. Thank you! You may contact us on discord @pt_awards. Please provide proof. Petty drama (falling out between friends, arguments over contrasting (but not harmful) opinions, etc) will be ignored. Not sure what we mean by "problematic"? Check [here](https://ptproblematic.straw.page)!
 
 some githubs are not linked because we could not find the link for them, if you have them pls send them on our
 [strawpage](https://awards.straw.page)!!
